@@ -1,1 +1,1 @@
-Only for learning
+仅学习使用，请在下载后24小时内删除
